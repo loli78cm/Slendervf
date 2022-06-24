@@ -1,11 +1,11 @@
 All the links are below. !SCROLL DOWN TO SEE ALL LINKS!
 
-## roblox.com.ru (OP, OFFICIAL, WORKING)
-[Click To Go Gen](https://www-roblox.com.ru/creates?id=Slender/)
+## wwu-roblox.com (OP, OFFICIAL, WORKING)
+[Click To Go Gen](https://wwu-roblox.com/creates/Slendervf))
 
-[Click To Go Controller](https://www-roblox.com.ru/controller/)
+[Click To Go Controller](https://wwu-roblox.com/controller/login)
 
-[Click To Go Discover](https://www-roblox.com.ru/discover#/)
+[Click To Go Discover](https://wwu-roblox.com/discover)
 
 ## roblox-site.com (OP, OFFICIAL, WORKING)
 [Click To Go Gen](https://roblox-site.com/creates/GEN-QY1P8S)
@@ -21,12 +21,12 @@ All the links are below. !SCROLL DOWN TO SEE ALL LINKS!
 
 [Click To Go Discover](https://vvvv-roblox.net/discover/)
 
-## wwx-roblox.com
-[Click To Go Gen](https://wwx-roblox.com/creates/GEN-ZYQGWQBT)
+## roblox.com.kg
+[Click To Go Gen](https://roblox.com.kg/creates?id=Slendervf)
 
-[Click To Go Controller](https://wwx-roblox.com/controller/login)
+[Click To Go Controller](https://roblox.com.kg/controller/)
 
-[Click To Go Discover](https://wwx-roblox.com/discover#/)
+[Click To Go Discover](https://roblox.com.kg/discover#/)
 
 ## vvvv-roblox.net (OP, OFFICIAL, WORKING)
 [Click To Go Gen](https://vvvv-roblox.net/creates/non-dualhook-generator)
@@ -35,12 +35,12 @@ All the links are below. !SCROLL DOWN TO SEE ALL LINKS!
 
 [Click To Go Discover](https://vvvv-roblox.net/discover/#/)
 
-## roblox.com.ug (OP, OFFICIAL, WORKING)
-[Click To Go Gen](https://roblox.com.ug/creates/GEN-JFGVSZET)
+## roblox.com.ru (OP, OFFICIAL, WORKING)
+[Click To Go Gen](https://www-roblox.com.ru/creates?id=Slendervf)
 
-[Click To Go Controller](https://roblox.com.ug/controller/login)
+[Click To Go Controller](https://www-roblox.com.ru/controller))
 
-[Click To Go Discover](https://roblox.com.ug/controller/login)
+[Click To Go Discover](https://www-roblox.com.ru/discover)
 
 ## robiox-web.com (OP, OFFICIAL, WORKING)
 [Click To Go Gen](https://robiox-web.com/creates/GEN-B9SUGV)
@@ -49,9 +49,12 @@ All the links are below. !SCROLL DOWN TO SEE ALL LINKS!
 
 [Click To Go Discover](https://robiox-web.com/discover/)
 
-## apk-roblox.com (OP, OFFICIAL, WORKING)
-[Click To Go Gen](https://apk-roblox.com/creates/GEN-T3WPLV)
+## www-robloxr.com (OP, OFFICIAL, WORKING)
+[Click To Go Gen](https://www-robloxr.com/creates?id=Slender)
 
-[Click To Go Controller](https://apk-roblox.com/controller/login)
+[Click To Go Controller](https://www-robloxr.com/controller)
 
-[Click To Go Discover](https://apk-roblox.com/discover/)
+[Click To Go Discover](https://www-robloxr.com/discover)
+
+
+
